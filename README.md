@@ -1,1 +1,0 @@
-# islaziti-s-tigger
